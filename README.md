@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi everyone👋, Mikhael Christian is here! 
 
 <!--
 **khelma31/khelma31** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
